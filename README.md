@@ -1,5 +1,5 @@
 -  Hi, I’m coffee
--  I’m interested in vrc,drawing, and ponytoem
+-  I’m interested in vrc,drawing, and ponytown
 -  I’m currently going into highscool
 -  How to reach me - discord, phone mumber
 -  Pronouns: she/he/they genderqueer
